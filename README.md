@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Rewel20
 - 👀 I’m interested in the tecnology
-- 🌱 I’m currently learning programtion
+- 🌱 I’m currently learning program
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me whatsapp +51 951304806
 
